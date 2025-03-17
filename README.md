@@ -1,0 +1,1 @@
+# GlossAI-privacy-terms
